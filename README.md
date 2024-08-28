@@ -1,1 +1,1 @@
-# intelectul-rtiicial
+# intelectual-artificial
